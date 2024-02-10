@@ -1,1 +1,0 @@
-# denmt_practice
